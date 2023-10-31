@@ -1,6 +1,5 @@
 # Teacher Cátia
 
-
 My emoji
 
 I am an :owl: :purple_heart: :dizzy: :notes: :nerd: 
